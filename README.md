@@ -6,5 +6,4 @@ As a freelance web developer, I specialize in creating websites, landing pages, 
 
 ![r](https://github.com/user-attachments/assets/ba235313-5b00-4b08-bf98-4708bd6a2503)
 
-
 ![f](https://github.com/user-attachments/assets/f33b9d0c-d7ea-466f-a6d4-2c44c049a333)
